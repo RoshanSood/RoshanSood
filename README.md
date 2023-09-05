@@ -25,5 +25,5 @@ and effective communication skills.
 * 🎨 Well versed in leadership positions and communication skills, experienced in collaborativeworking environments
 
 ### Contact Me!
-Email- roshansood99@gmail.com
-[LinkedIn-](https://www.linkedin.com/in/roshan-sood-8a0aa3248/)
+-Email- roshansood99@gmail.com
+-[LinkedIn](https://www.linkedin.com/in/roshan-sood-8a0aa3248/)
