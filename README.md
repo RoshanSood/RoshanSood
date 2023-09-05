@@ -23,3 +23,7 @@ and effective communication skills.
 * 📽️ Languages I'm proficient in- Java, Python, C++, C, JavaScript, React, Flutter, Dart
 * 👨‍🎓 Technical Classes -- Advanced Data Structures, Object Oriented Programming, Theory of Computation, Algorithm Design and Analysis, Operating Systems, Software Engineering
 * 🎨 Well versed in leadership positions and communication skills, experienced in collaborativeworking environments
+
+### Contact Me!
+Email- roshansood99@gmail.com
+[LinkedIn-](https://www.linkedin.com/in/roshan-sood-8a0aa3248/)
