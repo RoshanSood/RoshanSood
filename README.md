@@ -4,7 +4,7 @@ through hard work, attention to detail, excellent organizational skills,
 and effective communication skills.
 
 ### Interests
-* 🧮 Education -- Raised in San Diego, pursuing a bachelors degree in Computer Science
+* 🧮 Education -- Raised in San Diego, pursuing a bachelors degree in Computer Science at UC San Diego
 * 🏕️ Outdoors --  I love traveling the world with my family, I have been to 15+ countries and counting!
 * 🚴‍♂️ Fitness -- I love playing competitive basketball and running with friends
 * 🤖 Robotics -- I founded and was captain of an FRC Robotics Team, I want to help others find the same passion for robots as I have
