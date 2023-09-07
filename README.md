@@ -1,5 +1,5 @@
 ### Hey there! 👋
-I'm Roshan Sood, a determined college student eager to contribute to team success
+I'm Roshan Sood(Roshan Like The Ocean), a determined college student eager to contribute to team success
 through hard work, attention to detail, excellent organizational skills,
 and effective communication skills.
 
